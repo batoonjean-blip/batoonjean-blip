@@ -1,4 +1,4 @@
-## About
+## About Me
 
 Hello! I am Jean Batoon, a learner at Davao del Norte State College pursuing a Bachelor of Science in Information Technology. I'm really interested in editing, photography, and web creation. 
 
